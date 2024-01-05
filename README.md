@@ -1,4 +1,6 @@
-roadside university 命名之再考
+references #1: https://www.prageru.com/about
+
+roadside university 命名之再考 - remain unchanged for a while (2024 jan)
 1)facebook shows page of roadside university via google search
 2)GPT said: 
 
